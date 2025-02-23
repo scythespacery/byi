@@ -7,7 +7,7 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *oh btw anti-fictkins or reality checkers dni dni DNI. alllll of you are toxic /srs like you dont think we know who we are n shit????
 
-*eople who openly hate subkit (or any other harmless ships for that matter) iwvec regardless of if youre my friend or not... the only reason it isnt a straight-up dni is because ik most people believe subkit is problematic and i see why and i respect that opinion, HOWEVER its slowly becoming a comfort ship for me (its complicated) and i just really dont like the energy most subkit antis give off lmfao
+*eople who openly hate harmless ships like medhammer, subkit, medstaff, yada yada basically anything that isnt proship IWVEC!!!! because theres just no reason for allat imo. also i ship scythespace because of me and my gf, not bc itd work in canon lmfaoo
 
 *yesss im 14, and if you ever see "me" on the 18+ server it is the other guy on this account because he turns 18 on 11/7/25 /srs dont panic
 
