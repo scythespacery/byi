@@ -3,7 +3,7 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *12 and under dni dni dni dni dni NO EXCEPTIONS. ik i said this on my strawpage but you arent supposed to be here. i could go on a whole rant on its own about this but im not mostly bc im not gonna act like i wasnt 10 when i joined deviantart 💔
 
-*as for other people i dont care how old you are as long as youre nice and you arent somewhere on my dni. also please refrain from joking about me being young as A. it shouldnt matter bc im old enough to be here and B. it makes me insecure (im like 24 in source and i dont like being reminded that ive essentially been... aged down ig???). use common sense and dni if youre uncomfortable with my age help
+*as for other people i dont care how old you are as long as youre nice and you arent somewhere on my dni. also please refrain from joking about me being young as A. it shouldnt matter bc im old enough to be here and B. it makes me insecure for lots of reasons. use common sense and dni if youre uncomfortable with my age help
 
 *oh btw anti-fictkins or reality checkers dni dni DNI. alllll of you are toxic /srs like you dont think we know who we are n shit????
 
