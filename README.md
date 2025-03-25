@@ -14,3 +14,5 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 *yesss im 14, and if you ever see "me" on the 18+ server it is the other guy on this account because he turns 18 on 11/7/25 /srs dont panic
 
 *dont ask for my username on anything pls
+
+can people stop bullying me for my fictotype ZAWG I CANT CONTROL IT???? fym "help how do u kin an abuser? do u abuse people???" ?????????????????????????/
