@@ -9,6 +9,8 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *if im not responding to you, try whispering. that or i hid you (i only have 3 ppl hidden)
 
+*im marked as offline more often than not, but its probably just bc im burnt out 90% of the time. i love my friends & moots i promise (@nightshadeify & @g0odpuffer........ waves..... you guys are very coolcore)
+
 *eople who openly hate harmless ships like medhammer, subkit, medstaff, yada yada basically anything that isnt proship IWVEC!!!! because theres just no reason for allat imo. also i ship scythespace because of me and my gf, not bc itd work in canon lmfaoo
 
 *yesss im 14, and if you ever see "me" on the 18+ server it is the other guy on this account because he turns 18 on 11/7/25 /srs dont panic
