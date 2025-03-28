@@ -1,5 +1,5 @@
 # byi
-some things, sorry if these are repeated from my strawpage but theyre important !! hi im eating cheese sticks while writing this and theyre really... ass if im being honest like do yall want these theyre not that good
+some things, sorry if these are repeated from my strawpage but theyre important !! also HUGE SHOUTOUT to my friend honey for drawing my pfp (its basically a truesona/self insert lmao)!!!! i love it im gonna witerwy fweaking mawwy you bwo (??)
 
 *12 and under dni dni dni dni dni NO EXCEPTIONS. ik i said this on my strawpage but you arent supposed to be here. i could go on a whole rant on its own about this but im not mostly bc im not gonna act like i wasnt 10 when i joined deviantart 💔
 
