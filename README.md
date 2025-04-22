@@ -1,5 +1,6 @@
 # byi
 some things, sorry if these are repeated from my strawpage but theyre important !! also my pfp is my truesona but i didnt draw it
+
 *12 and under dni dni dni dni dni NO EXCEPTIONS. ik i said this on my strawpage but you arent supposed to be here. i could go on a whole rant on its own about this but im not mostly bc im not gonna act like i wasnt 10 when i joined deviantart 💔
 
 *i overshare im sorry 🥀🥀 if i get comfy with you i will show you irl pictures of like. shit. my broker plushie or my cat or smtn. dont become close to me if youre uncomfy with that bc thats my way of showing trust
