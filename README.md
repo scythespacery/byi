@@ -15,7 +15,9 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *eople who openly hate harmless ships like medhammer, subkit, medstaff, yada yada basically anything that isnt proship IWVEC!!!! because theres just no reason for allat imo. also i ship scythespace because of me and my gf, not bc itd work in canon lmfaoo
 
-*yesss im 14, and if you ever see "me" on the 18+ server it is the other guy on this account because he turns 18 on 11/7/25 /srs dont panic
+*yesss im 14, and if you ever see "me" on the 18+ server it is the other guy on this account because he turns 18 on 11/7/25 /srs dont panic (btw dni if you think its bad that my qpp is 17 lmao)
+
+*i almost never say hi first. like i said before, im usually burnt out these days and also i dont want to risk bothering people if they're busy. but if im not marked as offline then its safe to assume i want to talk to you
 
 *dont ask for my username on anything pls. ESP discord. if i want to give you my discord, i will on my own ^^ 
 
