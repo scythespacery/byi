@@ -9,7 +9,9 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *oh btw anti-fictkins or reality checkers dni dni DNI. alllll of you are toxic /srs like you dont think we know who we are n shit????
 
-*if im not responding to you, try whispering. that or i hid you (i only have 3 ppl hidden)
+*if im not responding to you, try whispering. that or i hid you (i only have 3 people hidden)
+
+*if im sitting like. right on you, it means i have you hidden (unless we're friends). dont be offended tho because tbf i probably did it for a really petty reason 💔💔 i really only hide annoying kids or people saying things im not comfortable with
 
 *im marked as offline more often than not, but its probably just bc im burnt out 90% of the time. i love my friends & moots i promise
 
