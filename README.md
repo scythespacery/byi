@@ -15,7 +15,7 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *im marked as offline more often than not, but its probably just bc im burnt out 90% of the time. i love my friends & moots i promise
 
-*eople who openly hate harmless ships like medhammer, subkit, medstaff, yada yada basically anything that isnt proship IWVEC!!!! because theres just no reason for allat imo. also i ship scythespace because of me and my gf, not bc itd work in canon lmfaoo
+*im a spawnist but i AM STRICTLY AGAINST THE CULT. if you have any questions about the religion, feel free to ask as long as youre nice. otherwise just hide me because i dont have the time to respond to the same 5 retarded remarks i hear daily on repeat
 
 *yesss im 14, and if you ever see "me" on the 18+ server it is the other guy on this account because he turns 18 on 11/7/25 /srs dont panic (btw dni if you think its bad that my qpp is 17 lmao)
 
