@@ -17,7 +17,7 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *im a spawnist but i AM STRICTLY AGAINST THE CULT. if you have any questions about the religion, feel free to ask as long as youre nice. otherwise just hide me because i dont have the time to respond to the same 5 retarded remarks i hear daily on repeat
 
-*yesss im 14, and if you ever see "me" on the 18+ server it is the other guy on this account because he turns 18 on 11/7/25 /srs dont panic (btw dni if you think its bad that my qpp is 17 lmao)
+*im 14
 
 *i almost never say hi first. like i said before, im usually burnt out these days and also i dont want to risk bothering people if they're busy. but if im not marked as offline then its safe to assume i want to talk to you
 
