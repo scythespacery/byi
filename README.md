@@ -1,5 +1,5 @@
 # byi
-some things, sorry if these are repeated from my strawpage but theyre important !! also my pfp is my truesona but i didnt draw it
+some things
 
 *12 and under dni dni dni dni dni NO EXCEPTIONS. ik i said this on my strawpage but you arent supposed to be here. i could go on a whole rant on its own about this but im not mostly bc im not gonna act like i wasnt 10 when i joined deviantart 💔
 
@@ -17,7 +17,7 @@ some things, sorry if these are repeated from my strawpage but theyre important 
 
 *im a spawnist but i AM STRICTLY AGAINST THE CULT. if you have any questions about the religion, feel free to ask as long as youre nice. otherwise just hide me because i dont have the time to respond to the same 5 retarded remarks i hear daily on repeat
 
-*im 14
+*im 15
 
 *i almost never say hi first. like i said before, im usually burnt out these days and also i dont want to risk bothering people if they're busy. but if im not marked as offline then its safe to assume i want to talk to you
 
